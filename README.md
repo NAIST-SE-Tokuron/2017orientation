@@ -1,5 +1,4 @@
-# 2017orientation
-Orientation of Tokuron in 2017
+# Orientation of Tokuron in 2017
 
 ## Topics
 
