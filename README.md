@@ -31,10 +31,11 @@ Raula Gaikovina Kula
 6/12 Mon. Ihara  
 6/14 Wed. Ihara  
 6/19 Mon. Hata  
-6/21 Wed. Hata  
-6/26 Mon. Ihara  
+~6/21 Wed. Hata~ (because of medical checkup)  
+6/26 Mon. ~Ihara~ Hata  
 6/28 Wed. Ihara  
-7/3 Mon. Ishio  
+7/3 Mon. ~Ishio~ Ihara  
 7/5 Wed. Ishio  
 7/10 Mon. Ishio  
 7/12 Wed. Ishio  
+7/19 Wed. Ishio
