@@ -35,7 +35,8 @@ Raula Gaikovina Kula
 6/26 Mon. ~Ihara~ Hata  
 6/28 Wed. Ihara  
 7/3 Mon. ~Ishio~ Ihara  
-7/5 Wed. Ishio  
+~7/5 Wed. Ishio~ (because of NAIST entrance exam.)  
 7/10 Mon. Ishio  
 7/12 Wed. Ishio  
-7/19 Wed. Ishio
+7/19 Wed. Ishio  
+7/24 Wed. Ishio
