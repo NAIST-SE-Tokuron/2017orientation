@@ -40,6 +40,5 @@ Raula Gaikovina Kula
 7/12 Wed. Ishio  
 7/19 Wed. Ishio  
 7/24 Wed. Ishio
-
 7/26 Mon. Ishio
 
