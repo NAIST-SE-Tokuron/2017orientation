@@ -1,4 +1,4 @@
-# Orientation of Tokuron in 2017
+# Orientation of Tokuron I&II in 2017
 
 ## Topics
 
